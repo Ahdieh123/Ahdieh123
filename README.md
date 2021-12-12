@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ahdieh123
+- 👀 I’m interested in Coding 
+- 🌱 I’m currently learning Coding 
+- 💞️ I’m looking to collaborate on new projects 
+- 📫 How to reach me majidi.mba@gmail.com
